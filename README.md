@@ -1,4 +1,4 @@
-### Hi there, I'm S M Shahriar Sharif Rahat 👋
+### Hi there, I'm Shahriar Sharif Rahat 👋
 <br>
 
 ##### Connect with me:
