@@ -1,6 +1,4 @@
-### Hi there 👋
-
-<h1 align="center">Hi there, I'm S M Shahriar Sharif Rahat 👋</h1>
+### Hi there, I'm S M Shahriar Sharif Rahat 👋
 - 📫 Email **: ssrahat@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
